@@ -1,4 +1,4 @@
-
+all star tower defense new Script offers the most advanced all star tower defense Script, with auto-sell and auto-upgrade. Perfect for dominating any
 
 
 
